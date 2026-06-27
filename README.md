@@ -1,17 +1,21 @@
 <div align="center">
   
-<img "/>
-<img src= https://github.com/user-attachments/assets/e1daa15b-44b6-483c-ad6e-8ec9720e17ba width="100%"/>
+<img src=https://files.catbox.moe/4ovsof.png  width="100%"/>
+<img src= https://i.postimg.cc/kXzNRVV9/Untitled240-20240723161805.png width="100%"/>
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=a6799a&base=1000&label=DOLLYS)
 
-$\small\textcolor{#ffcad1}{\textsf{𑣲ㅤㅤֺּׅ𓏽⑅ㅤㅤyui ֶָ֢   madoka irlㅤㅤ੭﹕﹒  ㅤㅤ年  17 y/o ⑅  ㅤㅤbabylolita/shoujo girl ૮ ◞ ﻌ ◟ ა Ი𐑼 ㅤ ㅤINFP ♡ ISFJ  ㅤ ㅤ◞}}$
 
-<img src= https://github.com/user-attachments/assets/877efb3c-63f0-465b-895c-3cb7202284ec
- width="100%"/>
+$\small\textcolor{#EEA7C2}{\textsf{╰┈➤ㅤBibi ‎ꫂ᭪݁  bunny queen ♡ㅤㅤᶻ 𝗓 𐰁  ㅤㅤtaken lesbian   (˶>⩊<˶) ㅤ ⋆˚✿˖°ㅤ basic DNI, INT all time !!   i swear i¨m friendly  ૮ ․ ․ ྀིაㅤ ㅤ◞}}$
 
-♡ㅤㅤㅤ[strawpage](https://porcellaindolly.straw.page/)ㅤㅤㅤ.ㅤㅤㅤ[rentry](https://rentry.co/PorcellainDolly)ㅤㅤㅤ.ㅤㅤㅤ[atabook](https://porcellaindolly.atabook.org)ㅤㅤㅤ♡
+𐙚ㅤIrl mizi ༄.°  minor ♡ㅤㅤ₍^. .^₎⟆  ㅤㅤask 4 socials!! ⋆˙⟡ㅤ ALNST fandom ˚.🦴 ᵎᵎ  mostly with friends or alone  𐔌՞. .՞𐦯ㅤ◞
 
-<img src= https://github.com/user-attachments/assets/421a916a-2818-48c2-877f-1cdbf2855d5b width="100%"/>
-<img src= https://github.com/user-attachments/assets/7cad531e-9267-46f6-b86f-412fd5324d6a width="100%"/>
+<img src=https://files.catbox.moe/2huv0x.png width="100%"/>
+
+
+
+ㅤ᭝ ᨳଓ ՟ㅤㅤ[strawpage](https://mademoiselleww.straw.page/)ㅤㅤㅤ────୨ৎ────ㅤㅤㅤ[rentry](https://rentry.co/mygodmyuniverse1)ㅤㅤㅤㅤ₊˚⊹♡ㅤ
+<img src= (https://files.catbox.moe/kbyb4f.gif) width="100%"/>
+
+
+<img src= https://files.catbox.moe/7iq0ac.png width="100%"/>
